@@ -4,4 +4,5 @@ dasjdbekyshj
 
 
 
-Bari gisher
+Bari 
+qezel :D hesa push anem pull ara vor tenas inchem gre :D ok davay :D
